@@ -1,6 +1,6 @@
-" 𝙔𝙤𝙪'𝙧𝙚 𝙛𝙪𝙘𝙠𝙞𝙣𝙜 𝙟𝙤𝙠𝙞𝙣𝙜! 𝙇𝙤𝙤𝙠𝙨 𝙡𝙞𝙠𝙚 𝙬𝙚 𝙜𝙤𝙩 𝙤𝙪𝙧 𝙨𝙥𝙞𝙣, 𝙑. "
+" 𝑯𝒂𝒊𝒍 𝑽𝒐𝒙 𝑷𝒐𝒑𝒖𝒍𝒊, 𝒕𝒉𝒆 𝑷𝒆𝒐𝒑𝒍𝒆'𝒔 𝑽𝒐𝒊𝒄𝒆 !! "
 
-<img width="720" height="501" alt="Image" src="https://github.com/user-attachments/assets/2d236015-7e56-4bf9-aec1-bbd701665477" />
+<img width="720" height="395" alt="Screenshot_20261116-081222_Chrome" src="https://github.com/user-attachments/assets/d1b7858b-49e3-4105-a72f-ed66bcc32ecb" />
 
 ════════════════════
 
@@ -86,6 +86,6 @@
 
 ════════════════════
 
-<img width="720" height="960" alt="Image" src="https://github.com/user-attachments/assets/a117b02c-30ce-4285-a28d-ff297d30e3f6" />
+<img width="720" height="487" alt="Screenshot_20261116-081310_Chrome" src="https://github.com/user-attachments/assets/425277bc-799e-4784-862d-4d476c4cab66" />
 
-" 𝙎𝙚𝙚𝙢𝙨 𝙩𝙤 𝙢𝙚 𝙣𝙤𝙩 𝙚𝙫𝙚𝙧𝙮𝙤𝙣𝙚 𝙞𝙨 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙝𝙚𝙧𝙚 𝙖𝙩 𝙩𝙝𝙚 𝙃𝙖𝙯𝙗𝙞𝙣 𝙃𝙤𝙩𝙚𝙡. "
+" 𝑴𝒂𝒏𝒊𝒇𝒆𝒔𝒕 𝒅𝒆𝒔𝒕𝒊𝒏𝒚, '𝒍𝒐𝒏𝒈 𝒂𝒔 𝒚𝒐𝒖 𝒊𝒏𝒗𝒆𝒔𝒕 𝒊𝒏 𝒎𝒆, 𝒕𝒉𝒆 𝒓𝒆𝒔𝒕 𝒘𝒊𝒍𝒍 𝒂𝒍𝒍 𝒇𝒊𝒕 𝒊𝒏𝒕𝒐 𝒑𝒍𝒂𝒄𝒆 !! "
