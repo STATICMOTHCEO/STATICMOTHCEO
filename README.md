@@ -2,29 +2,19 @@
 
 <img width="720" height="395" alt="Screenshot_20261116-081222_Chrome" src="https://github.com/user-attachments/assets/d1b7858b-49e3-4105-a72f-ed66bcc32ecb" />
 
+━━━━━━━━━━━━━━━━━━━━
+
+♡ [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-contributors](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [title-town](https://github.com/title-town) [pt-fashion](https://github.com/pt-fashion) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [ponychivements](https://github.com/ponychievements) [cosplay-town](https://github.com/cosplaytown) [casinotown](https://github.com/casinotown) [daggerstruckmage](https://github.com/daggerstruckmage) [fans-town](https://github.com/fans-town) [music-town](https://github.com/music-town) ♡
+
 ════════════════════
 
-ʀᴇʟᴀᴛɪᴏɴꜱʜɪᴘ ꜱᴛᴀᴛᴜꜱ﹕ᴛᴀᴋᴇɴ ʙʏ <ᴇ3
+ᴛᴀᴋᴇɴ ʙʏ <ᴇ3
 
-ᴘᴀɢᴀɴ !
+ᴘᴀɢᴀɴ 𝄪 ʙɪꜱᴇxᴜᴀʟ ᴡ/ ᴀ ᴍᴀʟᴇ ᴘʀᴇꜰᴇʀᴇɴᴄᴇ !
 
-ʙɪꜱᴇxᴜᴀʟ ᴡɪᴛʜ ᴀ ᴘʀᴇꜰᴇʀᴇɴᴄᴇ ꜰᴏʀ ᴍᴇɴ
+━━━━⊱🗝⊰━━━━
 
-ɴᴜᴍʙᴇʀ 1 ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ ᴄᴇᴏ . ᴏᴛʜᴇʀꜱ ᴅɴɪ/ᴜɪᴅ
-
-ᴏᴛʜᴇʀ ᴠᴏx ꜰɪᴄᴛᴋɪɴꜱ/ʏᴜᴍᴇꜱ ʜᴇᴀᴠɪʟʏ ꜱᴛʀɪᴄᴛ ᴅɴɪᴜɪᴅ . ᴡɪʟʟ ʙʟᴏᴄᴋ ᴏᴛʜᴇʀᴡɪꜱᴇ
-
-ᴘᴏɴʏᴛᴏᴡɴꜱ ᴠᴏx ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-contributors](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [title-town](https://github.com/title-town) [pt-fashion](https://github.com/pt-fashion) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [ponychivements](https://github.com/ponychievements) [cosplay-town](https://github.com/cosplaytown) [casinotown](https://github.com/casinotown) [daggerstruckmage](https://github.com/daggerstruckmage) !!!
-
-ᴠᴏx’ꜱ ʙɪɢɢᴇꜱᴛ ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [fans-town](https://github.com/fans-town) !!!
-
-ᴛʜᴇ ᴏꜰꜰɪᴄɪᴀʟ "ꜰᴀᴛʜᴇʀ-ᴅᴀᴜɢʜᴛᴇʀ ᴅᴀɴᴄᴇ" ʙʏ ᴊᴊ ʜᴇʟʟᴇʀ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [music-town](https://github.com/music-town) !!!
-
-ᴍɪɴᴏʀ . 18+ ᴅɴɪᴜɪᴅ . 15- ᴅɴɪ
-
-━━━━⊱🍃⊰━━━━
-
-ʙʏɪ ᛝ ɪ ᴀᴍ ᴀ ᴠᴇʀʏ ᴇxᴛʀᴏᴠᴇʀᴛᴇᴅ ᴘᴇʀꜱᴏɴ ᴏɴʟɪɴᴇ. ɪꜰ ʏᴏᴜ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ʙʏ ᴛʜɪꜱ ᴇᴀꜱɪʟʏ, ᴘʟꜱ ɪᴡᴇᴄ ᴏʀ ᴅɴɪ.
+ʙʏɪ ➡ ɪ ᴀᴍ ᴀ ᴠᴇʀʏ ᴇxᴛʀᴏᴠᴇʀᴛᴇᴅ ᴘᴇʀꜱᴏɴ ᴏɴʟɪɴᴇ. ɪꜰ ʏᴏᴜ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ʙʏ ᴛʜɪꜱ ᴇᴀꜱɪʟʏ, ᴘʟꜱ ɪᴡᴇᴄ ᴏʀ ᴅɴɪ.
 
 ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɪ ᴄᴀɴ ʙᴇ ꜱᴇɴꜱɪᴛɪᴠᴇ. ᴘʟᴇᴀꜱᴇ ɪᴡᴇᴄ.
 
@@ -32,19 +22,19 @@
 
 ᴅᴏ ɴᴏᴛ ᴍᴀᴛᴄʜ ᴡɪᴛʜ ᴍᴇ ᴜɴʟᴇꜱꜱ ɢɪᴠᴇɴ ᴘᴇʀᴍɪꜱꜱɪᴏɴ.
 
-━━━━⊱🍃⊰━━━━
+━━━━⊱🗝⊰━━━━
 
-ɪɴᴛ ᛝ ᴘᴀɢᴀɴꜱ, ʜᴇʟʟᴇɴɪꜱᴛꜱ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ ꜰᴀɴꜱ, ᴏᴄᴇᴀɴ ʟᴏᴠᴇʀꜱ, ʙᴇᴀᴄʜ ʟᴏᴠᴇʀꜱ, ꜱᴜɴꜱᴇᴛ ʟᴏᴠᴇʀꜱ, ᴅᴏɢ ʟᴏᴠᴇʀꜱ, ʀᴏʟʟɪɴɢ ꜱᴛᴏɴᴇꜱ ꜰᴀɴꜱ, ɢʀᴇᴇᴋ ᴍʏᴛʜᴏʟᴏɢʏ ꜰᴀɴꜱ, ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ɪɴᴛᴇʀᴇꜱᴛ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ɪᴍ ɪɴ
+ɪɴᴛ ➡ ᴘᴀɢᴀɴꜱ, ʜᴇʟʟᴇɴɪꜱᴛꜱ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ ꜰᴀɴꜱ, ᴏᴄᴇᴀɴ ʟᴏᴠᴇʀꜱ, ʙᴇᴀᴄʜ ʟᴏᴠᴇʀꜱ, ꜱᴜɴꜱᴇᴛ ʟᴏᴠᴇʀꜱ, ᴅᴏɢ ʟᴏᴠᴇʀꜱ, ʀᴏʟʟɪɴɢ ꜱᴛᴏɴᴇꜱ ꜰᴀɴꜱ, ɢʀᴇᴇᴋ ᴍʏᴛʜᴏʟᴏɢʏ ꜰᴀɴꜱ, ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ɪɴᴛᴇʀᴇꜱᴛ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ɪᴍ ɪɴ
 
-ɪᴡᴄ/ɪᴡᴇᴄ ᛝ ᴡɪᴛᴄʜᴇꜱ, ᴄʜʀɪꜱᴛɪᴀɴꜱ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ꜱᴜɪᴄɪᴅᴇ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴘᴏʟɪᴄᴇ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴅʀɪɴᴋɪɴɢ, ᴀɴɪᴍᴀʟ ᴅᴇᴀᴛʜ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ꜱʜ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴅᴀᴅᴅʏ ɪꜱꜱᴜᴇꜱ
+ɪᴡᴄ/ɪᴡᴇᴄ ➡ ᴡɪᴛᴄʜᴇꜱ, ᴄʜʀɪꜱᴛɪᴀɴꜱ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ꜱᴜɪᴄɪᴅᴇ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴘᴏʟɪᴄᴇ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴅʀɪɴᴋɪɴɢ, ᴀɴɪᴍᴀʟ ᴅᴇᴀᴛʜ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ꜱʜ, ᴛᴏᴘɪᴄꜱ ᴏꜰ ᴅᴀᴅᴅʏ ɪꜱꜱᴜᴇꜱ
 
-ᴅɴɪ ᛝ ᴅɪᴀʙᴏʟɪꜱᴛꜱ, ꜱᴀᴛᴀɴɪꜱᴛꜱ (ᴅɴɪᴜɪᴅ), ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜱᴜᴘᴘᴏʀᴛ ᴛʜᴇ ᴠᴇᴇꜱ ᴀᴄᴛɪᴏɴꜱ, ᴀɴɪᴍᴀʟ ᴀʙᴜꜱᴇʀꜱ, ᴀʙᴜꜱᴇʀ x ᴠɪᴄᴛɪᴍ
+ᴅɴɪ ➡ ᴅɪᴀʙᴏʟɪꜱᴛꜱ, ꜱᴀᴛᴀɴɪꜱᴛꜱ (ᴅɴɪᴜɪᴅ), ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜱᴜᴘᴘᴏʀᴛ ᴛʜᴇ ᴠᴇᴇꜱ ᴀᴄᴛɪᴏɴꜱ, ᴀɴɪᴍᴀʟ ᴀʙᴜꜱᴇʀꜱ, ᴀʙᴜꜱᴇʀ x ᴠɪᴄᴛɪᴍ
 
-━━━━⊱🍃⊰━━━━
+━━━━⊱🗝⊰━━━━
 
-ᴋɪɴꜱ ᛝ ᴠᴏx (ꜰɪᴄᴛᴋɪɴ) 𝄪 ᴄᴀᴘᴛᴀɪɴ ᴊᴀᴄᴋ ꜱᴘᴀʀʀᴏᴡ (ꜰɪᴄᴛᴋɪɴ) 𝄪 ᴠᴀʟᴇɴᴛɪɴᴏ (ᴋɪɴ) 𝄪 ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ (ᴋɪɴ) 𝄪 ᴠᴀɢɢɪ (ʜᴇᴀᴠʏ-ᴋɪɴ) 𝄪 ᴏᴄᴛᴀᴠɪᴀ ɢᴏᴇᴛɪᴀ (ʜᴇᴀᴠʏ-ᴋɪɴ) ʚɞ ꜰɪᴄᴛᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ᴅɴɪ/ᴜɪᴅ , ᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ɪɴᴛ
+ᴋɪɴꜱ ➡ ᴠᴏx (ꜰɪᴄᴛᴋɪɴ) 𝄪 ᴄᴀᴘᴛᴀɪɴ ᴊᴀᴄᴋ ꜱᴘᴀʀʀᴏᴡ (ꜰɪᴄᴛᴋɪɴ) 𝄪 ᴠᴀʟᴇɴᴛɪɴᴏ (ᴋɪɴ) 𝄪 ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ (ᴋɪɴ) 𝄪 ᴠᴀɢɢɪ (ʜᴇᴀᴠʏ-ᴋɪɴ) 𝄪 ᴏᴄᴛᴀᴠɪᴀ ɢᴏᴇᴛɪᴀ (ʜᴇᴀᴠʏ-ᴋɪɴ) ʚɞ ꜰɪᴄᴛᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ᴅɴɪ/ᴜɪᴅ , ᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ɪɴᴛ
 
-━━━━⊱🍃⊰━━━━
+━━━━⊱🗝⊰━━━━
 
 ৎ ! ʏᴜᴍᴇꜱ ! ୭
 
@@ -84,7 +74,7 @@
 
 • ᴠᴀx (ꜰᴀᴍɪʟɪᴀʟ ʏᴜᴍᴇ)
 
-════════════════════
+━━━━━━━━━━━━━━━━━━━━
 
 <img width="720" height="487" alt="Screenshot_20261116-081310_Chrome" src="https://github.com/user-attachments/assets/425277bc-799e-4784-862d-4d476c4cab66" />
 
